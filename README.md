@@ -1,1 +1,0 @@
-# lapendula.github.io
